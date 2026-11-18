@@ -13,7 +13,7 @@ The vidIQ link should only be replaced with a personal affiliate link if:
 2. The programme has approved the account and link.
 3. The link is used in accordance with the programme's current terms and applicable advertising rules.
 
-Until then, use the ordinary official link: https://vidiq.com/
+Until then, use the ordinary official link: https://vidiq.com/greatcult
 
 **Suggested disclosure beside an approved affiliate link:**
 
